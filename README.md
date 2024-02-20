@@ -1,0 +1,20 @@
+[READ THIS IN CODE MODE]
+Read the last sentence.
+
+
+kbcsjclbdabjljfnvjsffanlqpijkevfnelsvoajdldladvuDHBxbj Y
+SNAsnJNKSnsKNXnkXNNnk ksnkannsaknjwujalsanhqeuochdrhcfvebvks O
+ksdjciekvndajdvaaklancieaoceajuqoiqjcid<NOTIHNG LOL>oikanciownce U
+amkcmckan | 
+dkjacjidqeuhdjscnhauchyegqtvyvzczcccxyqoeijeincskcn A
+mckad bruh you readin this?wjdhbdeuqjbhdbjmsdjudaknckwnksnxknskx R
+aknskpqmnbcgyuiskmnbvftgvcbnxiq euhabsvayquwierfkcx E
+bascjeuii |
+ackmeuibajbdkadkahiqoihecjbytyvxhzkbjakncsmcsnmcnpoikwiecbjbc S
+hsivkcvejhqhecjbh#420-69#rjbcwjbqjecbqhsagufbcoqpihrckdchndjnwadncat I
+dkknacman qpijxnzydtcvz,bxpwpl,rmivr ijecssjdkcnwicbdsjdcbs G
+man qpijxnzydtcvz,bxpwpl,rmivr ijecssjdkcnwicbdsjdcbsxuaolxn kkjsan M
+xhkqvcbljkasnman qpijxnzydtcvz,bxpwpl,rmivr ijecssjdkcnwicbdsjdcbs A
+
+
+Now read the last letter of each sentence in the paragraph above.
