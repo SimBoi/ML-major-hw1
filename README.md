@@ -4,11 +4,11 @@ Read the last sentence.
 kbcsjclbdabjljfnvjsffanlqpijkevfnelsvoajdldladvuDHBxbj Y
 SNAsnJNKSnsKNXnkXNNnk ksnkannsaknjwujalsanhqeuochdrhcfvebvks O
 ksdjciekvndajdvaaklancieaoceajuqoiqjcid<NOTIHNG LOL>oikanciownce U
-amkcmckan -
+amkcmckan | 
 dkjacjidqeuhdjscnhauchyegqtvyvzczcccxyqoeijeincskcn A
 mckad bruh you readin this?wjdhbdeuqjbhdbjmsdjudaknckwnksnxknskx R
 aknskpqmnbcgyuiskmnbvftgvcbnxiq euhabsvayquwierfkcx E
-bascjeuii - 
+bascjeuii |
 ackmeuibajbdkadkahiqoihecjbytyvxhzkbjakncsmcsnmcnpoikwiecbjbc S
 hsivkcvejhqhecjbh#420-69#rjbcwjbqjecbqhsagufbcoqpihrckdchndjnwadncat I
 dkknacman qpijxnzydtcvz,bxpwpl,rmivr ijecssjdkcnwicbdsjdcbs G
